@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ehyong8828
+- 👋 Hi, I’m @ehyong
 - 👀 I’m interested in nft
 - 🌱 I’m currently working on nft projects
 - 💞️ I’m looking to collaborate on any potential projects
